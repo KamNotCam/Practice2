@@ -1,0 +1,1 @@
+Taylor is instructing me before Power.
